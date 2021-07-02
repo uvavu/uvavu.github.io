@@ -1,1 +1,0 @@
-# client coming soon :eyes:
